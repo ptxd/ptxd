@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ptxd
 - 👀 I’m interested in interesting stuff
 - 🌱 I’m currently learning macroeconomics
-- 💞️ I’m looking to collaborate on ...nope not looking to collab on anything at the moment unless its starts with a G and ends with a P
+- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...pm
 
 <!---
