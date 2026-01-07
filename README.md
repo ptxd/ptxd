@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ptxd
 - 👀 I’m interested in interesting stuff
-- 🌱 I’m currently learning macroeconomics
+- 🌱 I’m currently learning world models
 - 💞️ I’m looking to collaborate on ... anything interesting
 - 📫 How to reach me ... direct message
 
